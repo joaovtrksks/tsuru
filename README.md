@@ -50,7 +50,7 @@ Passo 6:
 
 Pegue uma das pontas laterais do losango e dobre-a em direção ao centro marcado anteriormente. Repita o mesmo com a outra ponta. Em seguida, dobre a pequena aba triangular que se formou na parte superior para baixo, apenas para marcar a dobra, e depois desdobre todas essas partes.
 
-![image](/imagens/12 .jpg)
+![image](/imagens/12.jpg)
 
 Passo 7:
 
